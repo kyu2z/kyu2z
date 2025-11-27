@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I'm Chutipon <br><br>I love Biology Physics and Chemistry.<br> <br><br>18yrs boy from BKK.<br><br>==================<br>#Dek69<br>==================
+Hi, I'm Chutipon <br><br>I love Biology and Physics.<br> <br><br>18yrs boy from BKK.<br><br>==================<br>#Dek69<br>==================
 
 
 ## 🌐 Socials:
